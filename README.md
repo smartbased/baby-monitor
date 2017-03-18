@@ -1,5 +1,6 @@
 # Baby Monitor
-##Which baby monitor should you get?
+
+## Which baby monitor should you get?
 
 You may see AND speak to your baby via this app. Your infant will learn how to be healthful choices if that's what he is accustomed to eating all along. Naturally, you don't need to press so hard your baby complains. Soon your baby will do the exact same. When it's moving, your infant should begin passing gas. Occasionally it can help them fall asleep, and at times it is helpful to sooth your infant. Let different men and women hold your infant. 
 Babies don't tend to remain in the more compact sizes too long. Don't boost the total amount of bedding as soon as your baby is ill. Sometimes, you will notice the baby being born prematurely because of extreme heights of stress.
